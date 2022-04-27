@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @cityl1fe
+- 👀 I’m interested in learning how to code and how to eventually be able to install and use Linux.
+- 🌱 I’m currently learning how to use GitHub. The basics of coding, and how to read and use GitHub software.
+- 📫  You can reach me on TG @Cityl1fe or city3030@protonmail.com
